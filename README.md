@@ -1,6 +1,6 @@
 # K RESHMA RAMAKRISHNAN
 **Senior DevOps & Site Reliability Engineer (SRE)**  
-Bengaluru, India | +91-8095126611 | kreshma927@gmail.com | [://linkedin.com](https://www.://linkedin.com)
+Bengaluru, India | +91-8095126611 | kreshma927@gmail.com | [://linkedin.com](https://www.linkedin.com/in/kreshma927)
 
 ---
 
